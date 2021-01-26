@@ -1,0 +1,2 @@
+# Samsung-Refrigerator-Service-Center-Mankhurd
+many best features cost and this is coming in very small size so this will not consume extra space in home so this. So many middle class households are buying this model in the refrigerator. And the double door fridge is coming with two other separate cooling systems for cooling. Basically this fridge has a big freezer comparing with single door refrigerator. https://samsung-servicecenterinmumbai.com/samsung-refrigerator-service-center-mankhurd/
